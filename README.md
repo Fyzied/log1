@@ -1,4 +1,4 @@
-# LOG 1 — INITIAL ENTRY
+# LOG 1
 
 It’s been a while in this… whatever the hell you call this.  
 I’ll call it an island.
